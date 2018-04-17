@@ -2,4 +2,4 @@
 Prabhakar_2018
 
 Relax and enjoy the ride!
-Smar work my friend 
+Smart work my friend 
